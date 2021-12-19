@@ -14,7 +14,7 @@ Info:
 * 306MB download
 
 ### Kanojo Ga Nekomimi Ni Kigaetara
-* Uploading...
+* [Download](https://anonfiles.com/Hf6b46n5wd/Kanojo_Ga_Nekomimi_Ni_Kigaetara-Uncensored-720p-n0pl0t_mp4)
 
 Info:
 * Uncensored
@@ -23,7 +23,7 @@ Info:
 
 ### Koi Maguwai
 #### Ep.1
-* Uploading...
+* [Download](https://anonfiles.com/h6s795nbwd/Koi_Maguwai_1-Uncensored-720p-n0pl0t_mp4)
 
 Info:
 * Uncensored
@@ -32,7 +32,7 @@ Info:
 
 ### S3xfriend
 #### Ep.1
-* Uploading...
+* [Download](https://anonfiles.com/BcY7B8n9wc/Sexfriend_1-Uncensored-720p-n0pl0t_mp4)
 
 Info:
 * Uncensored
