@@ -7,13 +7,46 @@ Welcome to n0pl0t, a collection of h3ntai downloads and streams with the plot en
 
 ### Itadaki Seieki!
 * [Download](https://anonfiles.com/R8G0O3m9w0/Itadaki_Seieki-Uncensored-720p-n0pl0t_mp4)
-* Streaming is not available yet.
 
 Info:
 * Uncensored
 * 720p
 * 306MB download
-* Around 10 minutes shorter than original release
+
+### Kanojo Ga Nekomimi Ni Kigaetara
+* Uploading...
+
+Info:
+* Uncensored
+* 720p
+* 316MB download
+
+### Koi Maguwai
+#### Ep.1
+* Uploading...
+
+Info:
+* Uncensored
+* 720p
+* 417MB download
+
+### S3xfriend
+#### Ep.1
+* Uploading...
+
+Info:
+* Uncensored
+* 720p
+* 443MB download
+
+### Shameshrine Andorora
+#### Ep.1
+* [Download](https://anonfiles.com/92Qdq9n9w2/Shameshrine_Andorora_1-Uncensored-480p-n0pl0t_mp4)
+
+Info:
+* Uncensored
+* 480p
+* 35MB download
 
 ## FAQ
 ### How do I get n0pl0t releases?
