@@ -18,4 +18,4 @@ Releases are sourced from [hanime.tv](https://hanime.tv). If a requested h3ntai 
 Yes, simply DM on Discord at HadesButDiscord#4177.
 
 ### Can I give you my hard earned money because you cut some plot out of a h3ntai?
-Of course! Donation links can be found at (add link later).
+Of course! Donation links can be found at https://github.com/HadesLabs/welcome#donate.
