@@ -28,9 +28,6 @@ Releases are sourced from [hanime.tv](https://hanime.tv). If a requested h3ntai 
 ### Are these censored?
 When I personally pick a h3ntai to make a release from, I make sure that it's uncensored. Any requests made to me may or may not be uncensored. 
 
-### Where can I find the original video?
-The original videos of my releases are in a playlist at https://hanime.tv/playlists/cojcpditw8dgyvxnyvbh.
-
 ### Do you take requests?
 Yes, simply DM on Discord at HadesButDiscord#4177. Your Discord username will be placed next to your request unless said otherwise. There's also basically nothing I won't do.
 
